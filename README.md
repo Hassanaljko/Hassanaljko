@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Hassanaljko
-- 👀 I’m interested in crypto
 - 🌱 I’m currently learning student
 - 💞️ I’m looking to collaborate on alpha layer 3, 
 - 📫 Reach me by twitter @hassanaljko
